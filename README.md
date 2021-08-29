@@ -1,4 +1,4 @@
-Plutonium.是我。
+热爱科技，热爱游戏，热爱生活。Plutonium Tech。
 我只有两样东西不会：这也不会，那也不会。
 
 Here's me.Plutonium. 
