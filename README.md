@@ -1,7 +1,7 @@
-热爱科技，热爱游戏，热爱生活。Plutonium Tech。
+热爱科技，热爱游戏，热爱生活。Plutonium，一个会修电脑的临床医学牲(x
 我只有两样东西不会：这也不会，那也不会。
 
-Here's me.Plutonium. 
+Here's me, Plutonium, a clinicial medical student who is able to fix bugs.
 
 <!---
 ERROR-7/ERROR-7 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
