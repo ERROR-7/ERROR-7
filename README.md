@@ -1,7 +1,4 @@
-热爱科技，热爱游戏，热爱生活。Plutonium。
-我只有两样东西不会：这也不会，那也不会。
-
-Plutonium.
+得闲饮茶。
 
 <!---
 ERROR-7/ERROR-7 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
